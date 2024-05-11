@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AlsoAHuman (She/Her)
+- I dont know how to code so anything i make is probably gonna suck
