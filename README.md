@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @AlsoAHuman (She/Her)
-- I dont know how to code (well) so anything i make is probably gonna suck
+- I dont know how to code well so anything i make is probably gonna suck
 - Open Source enjoyer
